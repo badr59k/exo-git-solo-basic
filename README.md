@@ -1,0 +1,5 @@
+Karim Benzema (/ka.ʁim bɛn.ze.ma/), surnommé KB9 ou El Nueve en Espagne, né le 19 décembre 1987 à Lyon, est un footballeur international français évoluant au poste d'avant-centre au Real Madrid.
+
+Considéré comme l'un des meilleurs attaquants de sa génération, Karim Benzema remporte en 2022, le titre de Joueur de l'année de l'UEFA et le Ballon d'or. Il est actuellement le meilleur buteur français de l'histoire de la Ligue des champions, le meilleur buteur français de l'histoire toutes compétitions confondues4 et le cinquième meilleur buteur de l'histoire de l'équipe de France.
+
+Natif de Lyon, il intègre le centre de formation de l'Olympique lyonnais à l'âge de dix ans et signe son premier contrat professionnel en 2005. Il remporte avec son club formateur, le Championnat de France en 2005, 2006, 2007 et 2008, la Coupe de France en 2008 et le Trophée des champions en 2006 et 2007.
